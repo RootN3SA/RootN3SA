@@ -1,6 +1,6 @@
-- 👋 Hi, We are Root And V3rtz
+- 👋 Hi, We are root And V3rtz
 - 👀 We are interested in computer science
-- ⚡ Fun fact: We are 2 different people
+- ⚡ Fun fact: We are 2 different people (holy shit really? YOU USED "WE" 2 TIMES BEFORE YOU SAID THAT)
 
 
     ██████████████████████████████████████████████████████████████
